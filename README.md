@@ -13,7 +13,3 @@ apart from the base game, this game also has a power up shop (no pokemon shop,so
 a two minute gameplay video:
 https://youtu.be/jKoggyoEuPg
 
-Q:why? you farmed for actual days on the original game just to get like an item and a pokemon. why did you made this?
-A:HAHAHAHAHAHAHAHAHA 
-
-this took 2 months including the mental breakdown
